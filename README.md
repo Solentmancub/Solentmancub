@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Solentmancub
+- 👀 I’m interested in learning 
+- 🌱 I’m currently learning Kali
+- 💞️ I’m looking to collaborate on newbies at coding
+- 📫 How to reach me - just ask
+- 🏴‍☠️ Some help is always appreciated
